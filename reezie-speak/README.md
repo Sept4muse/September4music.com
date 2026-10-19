@@ -1,0 +1,2 @@
+# REEZIE SPEAK
+Landing page for REEZIE SPEAK by REEZIE REEZ.
